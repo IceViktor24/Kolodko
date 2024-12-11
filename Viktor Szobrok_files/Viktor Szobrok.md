@@ -14,7 +14,7 @@ Aztán azt is érdemes tudni, hogy a magyarországi **Vajdahunyad vára** bizony
 
 
 # Micimackó
-![image](mici2.jpg)
+![image](Mici2.jpg)
 **1967-ben a Fővárosi Tanács** márvány emléktáblát helyezett a ***Damjanich utca 27. számú ház*** falára.
 Ugyanis ebben a házban született **1887. június 24-én Karinthy Frigyes** magyar író, költő és műfordító.
 Édesanyja **1895-ben** bekövetkezett haláláig itt élt a család, ezután az **édesapja** a **hat gyerekkel elköltözött** a házból.
@@ -24,7 +24,7 @@ S most az író **születésnapjának évfordulóján** Kolodkó Mihály legúja
 **Milne** híres meseregénye, **Micimackó és barátainak története**, ***magyarul*** először **1935-ben jelent** meg **Karinthy** fordításában.
 Mivel Karinthy nem beszélt angolul, a művet az író nővére, **Karinthy Emília** (Mici) készítette elő az író számára, irodalmi szerkesztésre.[1]
 Nővére iránti tiszteletből, nővére beceneve után kapta a kis mackó a **Micimackó** elnevezést.
-![image](mici1.jpg)
+![image](Mici1.jpg)
 
 # Noé Bárkája
 ![image](Hajó2.jpg)
