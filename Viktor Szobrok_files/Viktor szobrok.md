@@ -1,5 +1,5 @@
 # Drakula 
-![image](file:///C:/Users/lenne/Downloads/Kolodko/1.%20Drakula%20szobor/Drakula1.jpg)
+![image](Drakula1.jpg)
 Maga a művész még nem erősítette meg saját oldalain a **szobor létét**, igy pontos kihelyezési **időpontot** sem tudunk. 
 Az elhelyezkedés és a megformálás alapján **Lugosi Bélát** ábrázolja, mint **Drakula**, aki **szorgosan** és **kissé búsan** olvassa könyvet.
 Engem elvarázsolt, az egyik **legszívetmelengetőbb** szobor talán.
