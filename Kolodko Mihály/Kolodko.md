@@ -40,7 +40,7 @@ Hogy a nagy méretben készülő szobrokat is először kis méretben kell elké
 A művésznek nem mindig volt tervei megvalósításához **megrendelője**, és így anyagi fedezet híján, hogy ötletei **ne vesszenek el**, elkészítette őket **kicsiben**.
 Kolodko, amikor Budapestre költözött a családjával, először is a
 
-- Főkukac szobrát készítette el, ungvári elődje mintájára.
+- [Főkukac szobrát](https://www.kozterkep.hu/30235/fokukac-miniszobra) készítette el, ungvári elődje mintájára.
 
 A 15 cm-es szobrocska a **Bem rakpart 15. számú ház előtt helyezkedik el a felső rakpart mellvédjén**. Kolodko **kedvenc gyermekkori** mesefigurája kelt életre a kis szoborban: azt szerette volna, ha gyermekei is úgy tekintenek rá, mint ő gyermekkorában.
 
@@ -81,7 +81,7 @@ Néhány művét ellátja saját szignójával is ilyen például:
 
 #### 2. Sztálin Csizma
 
-![image](Sztálin.jpg])
+![image](Sztálin.jpg)
 
 ​
 
