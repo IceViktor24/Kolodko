@@ -34,6 +34,7 @@ Sokan a **kárpátaljai származású** művész egyik legjobb munkájának tart
 A szerény méretekkel bíró alkotás a **bibliai özönvíz** történetét dolgozza fel, melyet az **Ószövetség** első könyvében jegyeztek le. A tanítás szerint **Isten** megelégelte az emberek gonoszságát és úgy döntött, hogy **40 napon** és **40 éjjelen** át tartó esőt zúdít a világra.
 
 Egyedül az istenfélő **Noé és családja** menekült meg a pusztító áradattól, akit azzal bíztak meg, hogy építsen egy hatalmas bárkát a **Föld** állatfajainak megóvására. Az **özönvíz** végét azzal jelezte a **Mindenható**, hogy szivárványt vont az ég kékjére, ami azóta is a **remény** és az **újrakezdés jelképe**.
+
 ![image](Hajó1.jpg)
 
 # Szenes Hanna
@@ -41,9 +42,12 @@ Egyedül az istenfélő **Noé és családja** menekült meg a pusztító árada
 Végre egy valós nőnap! A Hosszúlépés. Járunk? csapata, akik alapban tematikus sétákat szerveznek, mozgalmat indított **Wonder Women** címen. Megelégelték, hogy Budapesten irreálisan nagyobb számú szobor van, ami akár inkább állatokat ábrázol, míg a számolt **1200-ból** mindössze **35 ábrázol nőt**, aki "nem **meztelen dekorációs** elem, hanem akár **hős** vagy **példakép**."[2] Az elmúlt évben, nőnap alkalmából, kartonszobrokat állítottak a hiányzó **női szobrok** jelölésére. Idén azonban a megvalósítás jegyében szobrot állíttattak Erzsébetvárosban... az elsőt, a tervezettek közül. Tőlük:
 "Tavaly megfogadtuk - most megvalósítottuk!
 Ma kikerült a városba az első hősnő, **Szenes Hanna miniszobra**, melyet Kolodko Mihály a Hosszúlépés támogatásával alkotott!" [1]
-A mozgalommal, a kezdeményezéssel kapcsolatban a továbbiakban ajánlom a forrás cikkét [2] + az egyéb kapcsolódó weblapoknál a "misszió" bemutatását honlapjukon.![image](Anna1.jpg)
-Nem véletlen a hely, nem véletlen a háttér.
-**Szenes (Anikó) Hanna költő**, ejtőernyős, **háborús hős** volt.
-Az asszimilált **zsidó családban** született Anikó **emigrálni** kényszerült, mivel a zsidótörvények miatt nem vették volna fel az egyetemre. Az akkor brit fennhatóság alá tartozó Palesztinába menekült. **1943-ban** csatlakozott a brit hadsereghez. '44-ben **Magyarországra küldték**, feladata a **magyar zsidók deportálásának** megakadályozása volt. A határon elfogták, többszörösen **megkínozták**, édesanyjával **zsarolták**, **árulásra akarták kényszeríteni**, de **nem adta meg magát**. Árulással **vádolták**, **1944 őszén** a Margit körúti **fogházban** kivégezték. **Izraelben** nemzeti hősként tisztelik, míg itthon eddig mindössze az a park őrizte emlékét, aminek sarkán a **miniszobrot** most elhelyezték.
-**Szenes Hannát ejtőernyős** öltözékben, abban a pozícióban ábrázolta Kolodko Mihály, ahogy a székhez kötözve kínozták... vagy éppen ugrik (?). Háta mögött Magyarország mészkőből faragott sziluettje látszik. Fejét felemelve, nyílt tekintettel néz szembe a nézővel.![image](Anna2.jpg)
+A mozgalommal, a kezdeményezéssel kapcsolatban a továbbiakban ajánlom a forrás cikkét [2] + az egyéb kapcsolódó weblapoknál a "misszió" bemutatását honlapjukon.
 
+![image](Anna1.jpg)
+
+Nem véletlen a hely, nem véletlen a háttér. **Szenes (Anikó) Hanna költő**, ejtőernyős, **háborús hős** volt.
+Az asszimilált **zsidó családban** született Anikó **emigrálni** kényszerült, mivel a zsidótörvények miatt nem vették volna fel az egyetemre. Az akkor brit fennhatóság alá tartozó Palesztinába menekült. **1943-ban** csatlakozott a brit hadsereghez. '44-ben **Magyarországra küldték**, feladata a **magyar zsidók deportálásának** megakadályozása volt. A határon elfogták, többszörösen **megkínozták**, édesanyjával **zsarolták**, **árulásra akarták kényszeríteni**, de **nem adta meg magát**. Árulással **vádolták**, **1944 őszén** a Margit körúti **fogházban** kivégezték. **Izraelben** nemzeti hősként tisztelik, míg itthon eddig mindössze az a park őrizte emlékét, aminek sarkán a **miniszobrot** most elhelyezték.
+**Szenes Hannát ejtőernyős** öltözékben, abban a pozícióban ábrázolta Kolodko Mihály, ahogy a székhez kötözve kínozták... vagy éppen ugrik (?). Háta mögött Magyarország mészkőből faragott sziluettje látszik. Fejét felemelve, nyílt tekintettel néz szembe a nézővel.
+
+![image](Anna2.jpg)
